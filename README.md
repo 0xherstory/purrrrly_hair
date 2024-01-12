@@ -18,4 +18,3 @@ https://ipfs.io/ipfs/QmXM31Lqtx5SAuv69n4Qf3J58oEDHzJcffbPFXXAXN9edC
 ![第二届结业书](https://github.com/0xherstory/purrrrly_hair/assets/142302094/e22117c4-87f5-43e3-a9b5-bfc5e71eb0fb)
 
 
-结业书.jpg
